@@ -1,4 +1,4 @@
-- 👋 Salut, je m'appelle  Paloma-KUISSU;
+- 👋 Salut, je m'appelle  Esthelle Paloma-KUISSU cCHEGAING;
 - 👀 Elève ingénieur stasticienne économiste en première année à l'ENSAE-DAKAR;
 - 📫 +221 77 590 89 87
 
